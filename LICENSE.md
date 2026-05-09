@@ -1,4 +1,4 @@
-
+smart XMind for Windows Workflow | notes-integration + drag-and-drop is the best XMind for Windows workflow, featuring notes-integration and drag-and-drop. Powerful, efficient,
 
 
 
